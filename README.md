@@ -1,2 +1,2 @@
 # Isma-M
-I am Isma
+i am inevitable 
